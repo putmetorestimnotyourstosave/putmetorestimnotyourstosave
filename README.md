@@ -1,4 +1,4 @@
-.
+![Image](https://github.com/user-attachments/assets/f1b7a463-c0b8-4d0e-b18a-69689ff8a841)
 ## 1 ────୨ৎ──── jay Ი𐑼
 
 ദ്ദി◝ ⩊ ◜.ᐟ
