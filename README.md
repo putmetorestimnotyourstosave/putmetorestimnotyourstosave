@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/f1b7a463-c0b8-4d0e-b18a-69689ff8a841)
+![Image](https://github.com/user-attachments/assets/e3b7b21e-308a-42aa-91a6-72e6b59ce235)
 ## 1 ────୨ৎ──── jay Ი𐑼
 
 ദ്ദി◝ ⩊ ◜.ᐟ
@@ -13,3 +13,4 @@ i am a huge lover of **fnaf**, however i play roblox equally, if not more than s
 ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ will likely add more stuff later when i feel like it.. ˗ˏˋ ★ ˎˊ˗
 
 ˗ˏˋ ♡ ˎˊ˗
+![Image](https://github.com/user-attachments/assets/f1b7a463-c0b8-4d0e-b18a-69689ff8a841) 
