@@ -1,16 +1,15 @@
-## Hi there 👋
+.
+## 1 ────୨ৎ──── jay Ი𐑼
 
-<!--
-**putmetorestimnotyourstosave/putmetorestimnotyourstosave** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ദ്ദി◝ ⩊ ◜.ᐟ
 
-Here are some ideas to get you started:
+# hello! im jay. you've likely seen me a lot in ponytown ^^. i use she/her, and am apart of many fandoms but only really frequent the bakery area or the fnaf area lel.
+i have goldfish cracker memory, so i need to put friend notes often. if i ask you your name and pronouns its exactly for that, so i dont forget you! im usually very sociable and like interacting with people, however i may occasionally put "dniuf" or something in my name. when i do, pls just give me 5 mins break, im just overstimulated/social battery died.
+birthday is 12th april, and as i said im 19 and in uni (foreign languages. major is chinese yes we learn chinese).
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ interests ! ꒰ᐢ. .ᐢ꒱
+i am a huge lover of **fnaf**, however i play roblox equally, if not more than security breach (600 hours on steam btw). currently hyperfixated on **phigting**, forsaken, die of death, regretevator, blocktales, evade, **bad things**..and just psychological horror as a whole genre, i like creepy games as much as i love comfy wholesome ones.
+
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ will likely add more stuff later when i feel like it.. ˗ˏˋ ★ ˎˊ˗
+
+˗ˏˋ ♡ ˎˊ˗
