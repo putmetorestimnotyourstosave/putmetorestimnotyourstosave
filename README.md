@@ -8,7 +8,7 @@ i have goldfish cracker memory, so i need to put friend notes often. if i ask yo
 birthday is 12th april, and as i said im 19 and in uni (foreign languages. major is chinese yes we learn chinese).
 
 # ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ interests ! ꒰ᐢ. .ᐢ꒱
-i am a huge lover of **fnaf**, however i play roblox equally, if not more than security breach (600 hours on steam btw). currently hyperfixated on **phigting**, forsaken, die of death, regretevator, blocktales, evade, **bad things**..and just psychological horror as a whole genre, i like creepy games as much as i love comfy wholesome ones.
+i am a huge lover of **fnaf**, however i play roblox equally, if not more than security breach (600 hours on steam btw). currently hyperfixated on **phigting**, forsaken, die of death, regretevator, blocktales, evade, **bad things**, **schedule 1**..and just psychological horror as a whole genre, i like creepy games as much as i love comfy wholesome ones.
 
 ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ will likely add more stuff later when i feel like it.. ˗ˏˋ ★ ˎˊ˗
 
