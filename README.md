@@ -1,16 +1,17 @@
 ![Image](https://github.com/user-attachments/assets/e3b7b21e-308a-42aa-91a6-72e6b59ce235)
-## 1 ────୨ৎ──── hellooouu!! Ი𐑼
+## ────୨ৎ──── hellooouu!! Ი𐑼
 
 ദ്ദി◝ ⩊ ◜.ᐟ
 
-# hi! im jay! you've likely seen me a lot in ponytown ^^. i use she/her, and am apart of many fandoms but only really frequent the bakery area or the fnaf area lel.
-i have goldfish cracker memory, so i need to put friend notes often. if i ask you your name and pronouns its exactly for that, so i dont forget you! im usually very sociable and like interacting with people, however i may occasionally put "dniuf" or something in my name. when i do, pls just give me 5 mins break, im just overstimulated/social battery died.
-birthday is 12th april, and as i said im 19 and in uni (foreign languages. major is chinese yes we learn chinese).
+# hi! im jay/vanny! you've likely seen me a lot in ponytown ^q^. i use she/her, and am apart of many fandoms but only really sit outside of the bakery!
+before you int please keep in mind i am hypersensitive and have audhd and ocd along with selective mutism , i may ignore you on purpose especially if i have a bad day but will eventually reach out when i'm okay again ! unless we're close or you're from party (looks at the people ive @'ed , lynn + coral too giggles) . be patient with me ok? ok. otherwise just dni !!
+
+
 
 # ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ interests ! ꒰ᐢ. .ᐢ꒱
-i am a huge lover of **fnaf**, however i play roblox equally, if not more than security breach (800 hours on steam btw). currently hyperfixated on **phigting**, forsaken, die of death, regretevator, blocktales, evade, **bad things**, **schedule 1**, **still wakes the deep**..and just psychological horror as a whole genre, i like creepy games as much as i love comfy wholesome ones.
+oh boy oh boy where do i start .. scratches head , i play a lot of shi but **phigting**, **bad things**, **still wakes the deep** and **schedule 1** fans pls hmu !! (i also play forsaken, dod, regretevator, blocktales, evade and .. fnaf .. did i surprise you? boo , im a vanny fictkin)
 
-⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ will likely add more stuff later when i feel like it.. ˗ˏˋ ★ ˎˊ˗
+# ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " ˗ˏˋ ★ ˎˊ˗
 
-˗ˏˋ ♡ ˎˊ˗
+# ˗ˏˋ ♡ ˎˊ˗ " i'm already back on skye .. you've never seen clear water like that. "
 ![Image](https://github.com/user-attachments/assets/f1b7a463-c0b8-4d0e-b18a-69689ff8a841) 
