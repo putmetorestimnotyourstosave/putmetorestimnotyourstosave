@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/e3b7b21e-308a-42aa-91a6-72e6b59ce235)
+![Image](https://github.com/user-attachments/assets/ecf00de9-7801-4a39-afcb-79f9e5c68e86)
 ## ────୨ৎ──── hellooouu!! Ი𐑼
 
 ദ്ദി◝ ⩊ ◜.ᐟ
