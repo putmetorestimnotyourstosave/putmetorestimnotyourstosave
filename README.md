@@ -14,4 +14,4 @@ oh boy oh boy where do i start .. scratches head , i play a lot of shi but **phi
 # ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " ˗ˏˋ ★ ˎˊ˗
 
 # ˗ˏˋ ♡ ˎˊ˗ " i'm already back on skye .. you've never seen clear water like that. "
-![Image](https://github.com/user-attachments/assets/f1b7a463-c0b8-4d0e-b18a-69689ff8a841) 
+![Image](https://github.com/user-attachments/assets/bb09d68d-4639-4372-8733-36aa88ac40a1)
