@@ -9,7 +9,7 @@ before you int please keep in mind i am hypersensitive and have audhd and ocd al
 
 
 # ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ interests ! ꒰ᐢ. .ᐢ꒱
-oh boy oh boy where do i start .. scratches head , i play a lot of shi but **phigting**, **bad things**, **still wakes the deep** and **schedule 1** fans pls hmu !! (i also play forsaken, dod, regretevator, blocktales, evade and .. fnaf .. did i surprise you? boo , im a vanny fictkin)
+oh boy oh boy where do i start .. scratches head , i play a lot of shi but im currently hyperfixated on **phigting**, **bad things**, **still wakes the deep** and **schedule 1** (i also like forsaken, dod, regretevator, blocktales, evade and .. fnaf .. did i surprise you? boo , im a vanny fictkin)
 
 # ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " ˗ˏˋ ★ ˎˊ˗
 
