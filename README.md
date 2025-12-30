@@ -13,7 +13,7 @@ oh boy oh boy where do i start .. scratches head , i play a lot of shi but im cu
 
 # ૮꒰˶  - ˕ -꒱ა please do not interact:
 # ⋆˙⟡ basic dni criteria, if under 13, anti yumeshippers, ignores my name and status on purpose ex: name is "dni" and you just keep bugging me. respectfully shove something up your ass and if you don't like it i'll shove it further. and if over 25 .. im uncomfortable* (also addair fans/j /lh any swtd fans int !!)
-* - just because some of my f/os are over the specified age of 25 (blinks at medkit phigting bros 30) does not mean i neccessarily want to interact with actual 25+ yr olds. please respect that lol. and i dont wanna hear any "b-b-b-but you watch astralspiff he's 28--" shuh tuh fuh uhp !!!
+*just because some of my f/os are over the specified age of 25 (blinks at medkit phigting bros 30) does not mean i neccessarily want to interact with actual 25+ yr olds. please respect that lol. and i dont wanna hear any "b-b-b-but you watch astralspiff he's 28--" shuh tuh fuh uhp !!!
 
 # ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " ˗ˏˋ ★ ˎˊ˗
 
