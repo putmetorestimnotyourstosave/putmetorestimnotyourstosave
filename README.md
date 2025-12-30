@@ -3,7 +3,8 @@
 
 ദ്ദി◝ ⩊ ◜.ᐟ
 
-# hi! im jay/vanny! you've likely seen me a lot in ponytown ^q^. i use she/her, and am apart of many fandoms but only really sit outside of the bakery!
+# hi! im jay/vanny! you've likely seen me a lot in ponytown
+# ໒꒰ྀི ˶> ˕ <˶꒱ྀི১. i use she/her, and am apart of many fandoms but only really sit outside of the bakery!
 before you int please keep in mind i am hypersensitive and have audhd and ocd along with selective mutism , i may ignore you on purpose especially if i have a bad day but will eventually reach out when i'm okay again ! unless we're close or you're from party (looks at the people ive @'ed , lynn + coral too giggles) . be patient with me ok? ok. otherwise just dni !!
 
 
