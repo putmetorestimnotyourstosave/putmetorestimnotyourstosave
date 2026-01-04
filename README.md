@@ -16,3 +16,5 @@ oh boy oh boy where do i start .. scratches head , i play a lot of shi but im cu
 
 # ˗ˏˋ ♡ ˎˊ˗ " i'm already back on skye .. you've never seen clear water like that. "
 ![Image](https://github.com/user-attachments/assets/bb09d68d-4639-4372-8733-36aa88ac40a1)
+
+# ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
