@@ -18,3 +18,4 @@ oh boy oh boy where do i start .. scratches head , i play a lot of shi but im cu
 ![Image](https://github.com/user-attachments/assets/bb09d68d-4639-4372-8733-36aa88ac40a1)
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
+![Image](https://github.com/user-attachments/assets/a887c50a-d15c-4fbf-ba72-d46f72fc78c1)
