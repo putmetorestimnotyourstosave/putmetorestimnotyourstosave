@@ -12,10 +12,10 @@ before you int please keep in mind i am hypersensitive and have audhd and ocd al
 # ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚ interests ! ꒰ᐢ. .ᐢ꒱
 oh boy oh boy where do i start .. scratches head , i play a lot of shi but im currently hyperfixated on **phigting**, **bad things**, **still wakes the deep** and **schedule 1** (i also like forsaken, dod, regretevator, blocktales, evade and .. fnaf .. did i surprise you? boo , im a vanny fictkin)
 
-# ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " ˗ˏˋ ★ ˎˊ˗
+# ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " / " i'm already back on skye .. you've never seen clear water like that. " ˗ˏˋ ★ ˎˊ˗
 
-# ˗ˏˋ ♡ ˎˊ˗ " i'm already back on skye .. you've never seen clear water like that. "
-![Image](https://github.com/user-attachments/assets/bb09d68d-4639-4372-8733-36aa88ac40a1)
+# ˗ˏˋ ♡ ˎˊ˗ github is still a huge wip, there are other things i wanna add or replace so bare with me
+![Image](https://github.com/user-attachments/assets/142fcc62-5c45-47f9-ac99-5c3fdf99378a)
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
 ![Image](https://github.com/user-attachments/assets/a887c50a-d15c-4fbf-ba72-d46f72fc78c1)
