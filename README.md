@@ -15,7 +15,7 @@ oh boy oh boy where do i start .. scratches head , i play a lot of stuff but im 
 # ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆ " be brave for once in your life . be brave for them .. " / " go home , caz .. " / " i'm already back on skye .. you've never seen clear water like that. " ˗ˏˋ ★ ˎˊ˗
 
 # ˗ˏˋ ♡ ˎˊ˗ github is still a huge wip, there are other things i wanna add or replace so bare with me
-![Image](https://github.com/user-attachments/assets/142fcc62-5c45-47f9-ac99-5c3fdf99378a)
+<img width="900" height="506" alt="Image" src="https://github.com/user-attachments/assets/412d285f-163a-40bf-873f-c72357791e93" />
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
 ![Image](https://github.com/user-attachments/assets/a887c50a-d15c-4fbf-ba72-d46f72fc78c1)
