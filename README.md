@@ -10,6 +10,8 @@ mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenle
 
 # ˙ . ꒷ 🍓  . 𖦹˙—
 
+<img width="2048" height="361" alt="Image" src="https://github.com/user-attachments/assets/e61adf86-914e-45db-8189-2fd578490f3d" />
+
 " that's how i do it, one day yes, one day no, one day i drink, one day i let go, one day i get busy, one day i put on a show . . . "
 
 <img width="907" height="597" alt="Image" src="https://github.com/user-attachments/assets/ab429fc3-58ed-4b9d-82af-2282f6a0f602" />
