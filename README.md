@@ -26,7 +26,7 @@ https://www.youtube.com/watch?v=1RTVxmJa8SA
 # . ݁₊ ⊹ . ݁˖ . ݁ᛝ do not interact
 proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage
 
-insert image
+<img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/bebcbbe3-753a-4cab-9fca-dd993f265b92" />
 
 # ꒰♯꒱┊i am also a hypersharing yumeshipper, list of my f/os also in strawpage guys i swear its not intentional that i keep mentioning my straw i just happened to put most info there so it would be too bothersome and pointless to copy paste everything here please
 
