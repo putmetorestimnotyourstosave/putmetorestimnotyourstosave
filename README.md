@@ -6,7 +6,7 @@
 ⋮ ⌗ ┆ before you int please keep in mind i am hypersensitive and have audhd and ocd along with selective mutism , i may ignore you on purpose especially if i have a bad day but will eventually reach out when i'm okay again ! unless we're close or you're from party. be patient with me ok? ok. otherwise just dni, i bite.
 
 # 𓏵‧₊˚ ┊ ‧₊˚ interests !
-mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep** .. more in strawpage !
+mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenless zone zero** .. more in strawpage !
 
 # ˙ . ꒷ 🍓  . 𖦹˙—
 
