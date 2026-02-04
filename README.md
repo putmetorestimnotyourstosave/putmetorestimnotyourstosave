@@ -20,6 +20,15 @@ mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenle
 <img width="907" height="597" alt="Image" src="https://github.com/user-attachments/assets/ab429fc3-58ed-4b9d-82af-2282f6a0f602" />
 https://www.youtube.com/watch?v=1RTVxmJa8SA
 
+<img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/a2780bdb-b994-46aa-8e8e-f5a88db18517" />
+
+# . ݁₊ ⊹ . ݁˖ . ݁ᛝ do not interact
+proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage
+
+insert image
+
+# ꒰♯꒱┊i am also a hypersharing yumeshipper, list of my f/os also in strawpage guys i swear its not intentional that i keep mentioning my straw i just happened to put most info there so it would be too bothersome and pointless to copy paste everything here please
+
 ![Image](https://github.com/user-attachments/assets/0d4d9add-9334-4242-a6b0-0aff60c0988e)
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
