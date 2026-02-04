@@ -16,3 +16,4 @@ mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenle
 https://www.youtube.com/watch?v=1RTVxmJa8SA
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
+![Image](https://github.com/user-attachments/assets/3c69579c-6332-4922-a539-55750d937ade)
