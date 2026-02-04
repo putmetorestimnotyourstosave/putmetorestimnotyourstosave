@@ -5,6 +5,8 @@
 # ⊹ ࣪ ˖ hi ! i'm jay, 19 years old and i go by she/her. i am a vanny fictkin, so feel free to use that name on me as well. ro/eng btw .ᐟ.ᐟ
 ⋮ ⌗ ┆ before you int please keep in mind i am hypersensitive and have audhd and ocd along with selective mutism , i may ignore you on purpose especially if i have a bad day but will eventually reach out when i'm okay again ! unless we're close or you're from party. be patient with me ok? ok. otherwise just dni, i bite.
 
+![Image](https://github.com/user-attachments/assets/6542b84a-8220-44b3-9bc5-2414ef272cb7)
+
 # 𓏵‧₊˚ ┊ ‧₊˚ interests !
 mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenless zone zero** .. and more in strawpage !
 
