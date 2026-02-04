@@ -8,4 +8,7 @@
 # 𓏵‧₊˚ ┊ ‧₊˚ interests !
 mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep** .. more in strawpage !
 
-# ˙ . ꒷ :pinkstrawberry2:  . 𖦹˙—
+# ˙ . ꒷ 🍓  . 𖦹˙—
+
+" that's how i do it, one day yes, one day no, one day i drink, one day i let go, one day i get busy, one day i put on a show . . . "
+
