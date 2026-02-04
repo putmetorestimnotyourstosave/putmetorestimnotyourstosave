@@ -20,6 +20,7 @@ mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenle
 <img width="907" height="597" alt="Image" src="https://github.com/user-attachments/assets/ab429fc3-58ed-4b9d-82af-2282f6a0f602" />
 https://www.youtube.com/watch?v=1RTVxmJa8SA
 
+
 <img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/a2780bdb-b994-46aa-8e8e-f5a88db18517" />
 
 # . ݁₊ ⊹ . ݁˖ . ݁ᛝ do not interact
