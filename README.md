@@ -1,6 +1,6 @@
 <img width="599" height="284" alt="Image" src="https://github.com/user-attachments/assets/dfc418d9-55d1-43d8-82fe-ab248061a1e2" />
 
-## , , # :: ︶︶ ✧ — hello ' ! .
+## , , # :: ︶︶ ✧ — ₊˚.🌹⋆⁺₊ boo ' ! .
 
 # ⊹ ࣪ ˖ hi ! i'm jay, 19 years old and i go by she/her. i am a vanny fictkin, so feel free to use that name on me as well. ro/eng btw .ᐟ.ᐟ
 ⋮ ⌗ ┆ before you int please keep in mind i am hypersensitive and have audhd and ocd along with selective mutism , i may ignore you on purpose especially if i have a bad day but will eventually reach out when i'm okay again ! unless we're close or you're from party. be patient with me ok? ok. otherwise just dni, i bite.
