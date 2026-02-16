@@ -15,11 +15,10 @@ mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenle
 
 <img width="2048" height="361" alt="Image" src="https://github.com/user-attachments/assets/e61adf86-914e-45db-8189-2fd578490f3d" />
 
-" that's how i do it, one day yes, one day no, one day i drink, one day i let go, one day i get busy, one day i put on a show . . . "
+" i'm kickin' you ass out, flutter my wings while i pout [. . .] cut you off, watch you die, just a fairy with a knife "
 
-<img width="907" height="597" alt="Image" src="https://github.com/user-attachments/assets/ab429fc3-58ed-4b9d-82af-2282f6a0f602" />
-https://www.youtube.com/watch?v=1RTVxmJa8SA
-
+<img width="907" height="591" alt="Image" src="https://github.com/user-attachments/assets/bfe3a935-1b3c-4fed-85b1-2c6545b99271" />
+https://www.youtube.com/watch?v=jZ2FcViPcPg
 
 <img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/a2780bdb-b994-46aa-8e8e-f5a88db18517" />
 
