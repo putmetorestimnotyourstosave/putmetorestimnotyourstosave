@@ -11,7 +11,7 @@
 ![Image](https://github.com/user-attachments/assets/fafabb16-6418-4f78-a422-2ad20d35a91a)
 
 # 𓏵‧₊˚ ┊ ‧₊˚ interests !
-mainly **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenless zone zero** .. and more in strawpage !
+mainly **poppy playtime**, **phigting**, **bad things**, **fnaf**, **still wakes the deep**, **zenless zone zero** .. and more in strawpage !
 
 # ˙ . ꒷ 🍓  . 𖦹˙—
 
