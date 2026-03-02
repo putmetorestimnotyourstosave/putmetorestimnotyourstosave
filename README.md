@@ -35,3 +35,5 @@ proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a 
 
 # ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ im also a beginner speedrunner, mostly trying to get world record in security breach. can you tell who's my fav streamer based on this info? lol
 ![Image](https://github.com/user-attachments/assets/3c69579c-6332-4922-a539-55750d937ade)
+
+![Image](https://github.com/user-attachments/assets/ce7c9505-1c0d-40a5-aa2a-787be93762ab)
