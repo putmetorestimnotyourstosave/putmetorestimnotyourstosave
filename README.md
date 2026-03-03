@@ -17,7 +17,7 @@ mainly **poppy playtime**, **phigting**, **bad things**, **fnaf**, **still wakes
 
 <img width="2048" height="361" alt="Image" src="https://github.com/user-attachments/assets/e61adf86-914e-45db-8189-2fd578490f3d" />
 
-" i'm kickin' you ass out, flutter my wings while i pout [. . .] cut you off, watch you die, just a fairy with a knife "
+" i'm kickin' your ass out, flutter my wings while i pout [. . .] cut you off, watch you die, just a fairy with a knife "
 
 <img width="907" height="591" alt="Image" src="https://github.com/user-attachments/assets/bfe3a935-1b3c-4fed-85b1-2c6545b99271" />
 https://www.youtube.com/watch?v=jZ2FcViPcPg
