@@ -17,9 +17,9 @@ you can find all of my fav media (games, args etc.) in strawpage. for now i'm hy
 
 <img width="2048" height="361" alt="Image" src="https://github.com/user-attachments/assets/e61adf86-914e-45db-8189-2fd578490f3d" />
 
-❝ i'm kickin' your ass out, flutter my wings while i pout [. . .] cut you off, watch you die, just a fairy with a knife ❞
+❝ in the scale of the universe you serve a greater purpose, set sail but be sure you never fail to alert us ❞
 
-<img width="907" height="591" alt="Image" src="https://github.com/user-attachments/assets/bfe3a935-1b3c-4fed-85b1-2c6545b99271" />
+<img width="909" height="591" alt="Image" src="https://github.com/user-attachments/assets/edd24489-dafc-483b-a5e2-bf32eceab5fa" />
 https://www.youtube.com/watch?v=XAKxzqAKI6g
 
 <img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/a2780bdb-b994-46aa-8e8e-f5a88db18517" />
