@@ -20,7 +20,7 @@ you can find all of my fav media (games, args etc.) in strawpage. for now i'm hy
 ❝ i'm kickin' your ass out, flutter my wings while i pout [. . .] cut you off, watch you die, just a fairy with a knife ❞
 
 <img width="907" height="591" alt="Image" src="https://github.com/user-attachments/assets/bfe3a935-1b3c-4fed-85b1-2c6545b99271" />
-https://www.youtube.com/watch?v=jZ2FcViPcPg
+https://www.youtube.com/watch?v=XAKxzqAKI6g
 
 <img width="2048" height="258" alt="Image" src="https://github.com/user-attachments/assets/a2780bdb-b994-46aa-8e8e-f5a88db18517" />
 
