@@ -11,7 +11,7 @@
 ![Image](https://github.com/user-attachments/assets/fafabb16-6418-4f78-a422-2ad20d35a91a)
 
 # 𓏵‧₊˚ ┊ ‧₊˚ interests !
-you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on **iron lung**, **poppy playtime** and **good coffee great coffee**. il, ppt fans and gcgc fans plz interact !!
+you can find all of my fav media (games, args etc.) in strawpage. for now i'm hyperfixated on **iron lung**, **poppy playtime** and **good coffee great coffee**. iron lung fans, ppt fans and gcgc fans plz interact !!
 
 # ˙ . ꒷ 🍓  . 𖦹˙—
 
