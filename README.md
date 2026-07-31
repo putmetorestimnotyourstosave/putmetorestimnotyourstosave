@@ -8,8 +8,8 @@
 
  [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
 
- <div align="center"> ponytown's simon :
+ <div align="center"> ponytown's simon & number 1 iron lung fan :
    
  <div align="center">
    
-   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame)
+   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media)
