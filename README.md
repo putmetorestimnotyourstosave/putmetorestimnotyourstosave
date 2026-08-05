@@ -6,7 +6,7 @@
 <div align="center"> project hail mary fans & bloodymary shippers DNI
 <div align="center"> .
 
- [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
+ [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://malhareexelolz.straw.page/)
 
  <div align="center"> ponytown's simon & number 1 iron lung fan :
    
