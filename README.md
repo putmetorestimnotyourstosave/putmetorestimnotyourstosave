@@ -12,7 +12,8 @@
    
  <div align="center">
    
-   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media) ꒰ ⋮ ꒱ [꒰ა♡໒꒱](https://github.com/pt-fashion) ꒰ ⋮ ꒱ [୨♡୧](https://github.com/pt-of-awesomeness)
+   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media) ꒰ ⋮ ꒱ [꒰ა♡໒꒱](https://github.com/pt-fashion) ꒰ ⋮ ꒱ [୨♡୧](https://github.com/pt-of-awesomeness) ꒰ ⋮ ꒱ [ʚ♡ɞ](https://github.com/pt-nominations)
+
 
  <div align="center"> also ponytown's vanny :
    <div align="center">
