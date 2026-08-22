@@ -4,7 +4,7 @@
 
 <div align="center"> recovering from something serious , interact with extreme care at all times .
 
-<div align="center"> picture of sona
+<div align="center"> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e07d6a6b-8b56-411f-911e-2414aa902f69" />
 
 <div align="center"> jay/vanny/skye/any other fictkin name use whichever you want
 <div align="center"> 20 y.o
@@ -26,6 +26,6 @@
    
    [୭ ᵎᵎ ♡](https://github.com/title-town)
 
-graph
+<div align="center"> <img width="2048" height="268" alt="Image" src="https://github.com/user-attachments/assets/39af3730-178a-41a2-a7cc-9faeec6ae4a4" />
 
-moving text
+<div align="center"> moving text
