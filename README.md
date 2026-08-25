@@ -1,8 +1,12 @@
-<div align="center"> moving text
+<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=FCBDD6&width=435&lines=%22Cause+a+bear+doesn't+care+that+he's+evil%22;%22Microphone%2C+holler+back+at+the+people!%22" alt="Typing SVG" /></a>
 
-<div align="center"> <img width="2048" height="250" alt="Image" src="https://github.com/user-attachments/assets/bb48ea18-4d3e-41a3-8460-acbfc71c406f" />
 
-<p align="center"> ${\textsf{\color{#fcbdd6} recovering from something serious , interact with extreme care at all times . }}$
+<p align="center"> ${\textsf{\color{#f52879} pt info : }}$
+<p align="center"> ${\textsf{\color{#fcbdd6} unavailable from 10 pm - 10 am UTC+3 }}$
+<p align="center"> ${\textsf{\color{#cacfff} be mindful of what you say to us , we're sensitive and take most things to heart }}$
+<p align="center"> ${\textsf{\color{#eea6ff} i have a dni and also block freely, if i'm sitting on someone they're likely blocked! }}$
+<p align="center"> ${\textsf{\color{#fcbdd6} we have dyslexia so if you have typing quirks like leet pls pls tone it down around us ૮꒰◞ ˕ ◟ ྀི꒱ა }}$
+<p align="center"> ${\textsf{\color{#fcbdd6} i'm also recovering from something serious , interact with extreme care at all times . }}$
 
 <div align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dd49f75d-0966-4a44-af4a-f659da30c04c" />
 <p align="center"> ${\textsf{\color{#fcadf4} ic : dr-vanta on github thanku vanta !! }}$
@@ -28,6 +32,4 @@
    
    [୭ ᵎᵎ ♡](https://github.com/title-town)
 
-<div align="center"> <img width="2048" height="268" alt="Image" src="https://github.com/user-attachments/assets/39af3730-178a-41a2-a7cc-9faeec6ae4a4" />
-
-<div align="center"> moving text
+<div align="center"> <img width="2048" height="250" alt="Image" src="https://github.com/user-attachments/assets/bb48ea18-4d3e-41a3-8460-acbfc71c406f" />
