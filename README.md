@@ -1,3 +1,5 @@
+<div align="center"> <img width="2048" height="250" alt="Image" src="https://github.com/user-attachments/assets/bb48ea18-4d3e-41a3-8460-acbfc71c406f" />
+ 
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=FCBDD6&width=435&lines=%22Cause+a+bear+doesn't+care+that+he's+evil%22;%22Microphone%2C+holler+back+at+the+people!%22" alt="Typing SVG" /></a>
 
 
