@@ -4,7 +4,9 @@
 
 <div align="center"> recovering from something serious , interact with extreme care at all times .
 
-<div align="center"> <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/449d99a9-9e01-4665-ad0e-e174539f4838" />
+<div align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dd49f75d-0966-4a44-af4a-f659da30c04c" />
+<div align="center"> ic : dr-vanta on github thanku vanta !!
+<div align="center"> .
 <div align="center"> jay/vanny/skye/any other fictkin name use whichever you want
 <div align="center"> 20 y.o
 <div align="center"> basic DNI + darkshippers/proshippers genuinely stay the fuck away from me
