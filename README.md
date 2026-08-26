@@ -23,7 +23,7 @@
 <div align="center"> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e07d6a6b-8b56-411f-911e-2414aa902f69" />
 
 
- [atabook](https://malharejayexe.atabook.org/) ໒꒰ྀི ˶> ˕ <˶꒱ྀི১ [straw]([https://malhareexelolz.straw.page/](https://yourlocaljayjay.straw.page/))
+ [atabook](https://malharejayexe.atabook.org/) ໒꒰ྀི ˶> ˕ <˶꒱ྀི১ [straw](https://yourlocaljayjay.straw.page/)
 
  ${\textsf{\color{#eea6ff} ponytown's⠀simon⠀and⠀number⠀1⠀iron⠀lung⠀fan⠀: }}$
    
