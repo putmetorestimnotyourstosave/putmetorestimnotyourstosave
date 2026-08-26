@@ -14,7 +14,7 @@
 <p align="center"> ${\textsf{\color{#fcbdd6} recovering from something serious , interact with extreme care at all times . }}$
 
 <div align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dd49f75d-0966-4a44-af4a-f659da30c04c" />
-<p align="center"> <sub> ${\textsf{\color{#fcadf4} ic : kittydummy , art : dr-vanta both on github thanku guys !!}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#fcadf4} art : dr-vanta on github thanku !!}}$ </sub>
 <div align="center"> .
 <p align="center"> ${\textsf{\color{#eea6ff} jay/vanny/skye/any other fictkin name use whichever you want }}$
 <p align="center"> ${\textsf{\color{#d2acff} 20 y.o }}$
