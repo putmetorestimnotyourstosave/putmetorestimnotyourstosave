@@ -19,7 +19,7 @@
 <p align="center"> ${\textsf{\color{#eea6ff} jay/vanny/skye/any other⠀fictkin⠀name⠀use⠀whichever⠀you⠀want }}$
 <p align="center"> ${\textsf{\color{#d2acff} 20⠀y.o }}$
 <p align="center"> ${\textsf{\color{#cacfff} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
-<p align="center"> ${\textsf{\color{#d2acff} project⠀hail⠀mary⠀fans⠀and⠀bloodymary⠀shippers⠀DNI }}$
+<p align="center"> ${\textsf{\color{#d2acff} project⠀hail⠀mary⠀fans⠀iwc but⠀bloodymary⠀shippers⠀DNI }}$
 <div align="center"> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e07d6a6b-8b56-411f-911e-2414aa902f69" />
 
 
