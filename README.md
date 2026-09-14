@@ -32,9 +32,9 @@
    [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media) ꒰ ⋮ ꒱ [꒰ა♡໒꒱](https://github.com/pt-fashion) ꒰ ⋮ ꒱ [୨♡୧](https://github.com/pt-of-awesomeness) ꒰ ⋮ ꒱ [ʚ♡ɞ](https://github.com/pt-nominations)
 
 
- <p align="center"> ${\textsf{\color{#fcadf4} also⠀ponytown's⠀vanny⠀: }}$
+ <p align="center"> ${\textsf{\color{#fcadf4} also⠀ponytown's⠀vanny⠀and⠀cotton⠀candy's⠀biggest⠀fan⠀: }}$
    <div align="center">
    
-   [୭ ᵎᵎ ♡](https://github.com/title-town)
+   [୭ ᵎᵎ ♡](https://github.com/title-town) ꒰ ⋮ ꒱ [‹𝟹 ໒꒱](https://github.com/kaotown)
 
 <div align="center"> <img width="2048" height="250" alt="Image" src="https://github.com/user-attachments/assets/bb48ea18-4d3e-41a3-8460-acbfc71c406f" />
