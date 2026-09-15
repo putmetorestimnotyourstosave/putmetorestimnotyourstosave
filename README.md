@@ -15,7 +15,7 @@
 
 <div align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dd49f75d-0966-4a44-af4a-f659da30c04c" />
 <p align="center"> <sub> ${\textsf{\color{#fcadf4} art⠀:⠀dr-vanta⠀on⠀github⠀thanku !!}}$ </sub>
-<div align="center"> .
+<div align="center"> ⠀
 <p align="center"> ${\textsf{\color{#eea6ff} jay/vanny/skye/any other⠀fictkin⠀name⠀use⠀whichever⠀you⠀want }}$
 <p align="center"> ${\textsf{\color{#d2acff} 20⠀y.o }}$
 <p align="center"> ${\textsf{\color{#cacfff} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
