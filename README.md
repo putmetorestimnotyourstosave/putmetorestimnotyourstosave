@@ -4,7 +4,7 @@
  
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=FCBDD6&width=435&lines=%22Cause+a+bear+doesn't+care+that+he's+evil%22;%22Microphone%2C+holler+back+at+the+people!%22" alt="Typing SVG" /></a>
 
-<div align="center"> <img width="500" height="500" alt="Untitled160_20261119205548" src="https://github.com/user-attachments/assets/4980a313-7171-4bec-b526-de286361f73b" />
+<div align="center"> <img width="500" height="500" alt="Untitled287_20261120235216" src="https://github.com/user-attachments/assets/3cb64e63-7b4c-43d9-805d-2593971441e8" />
  
 <p align="center"> <sub> ${\textsf{\color{#fcadf4} art⠀:⠀my⠀homegirl⠀ilysm⠀kisses}}$ </sub>
 <p align="center">
