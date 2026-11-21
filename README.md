@@ -3,7 +3,7 @@
 <div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%99%A1%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&color=fff5fa&labelColor=fbd4e7"/></a>
  
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FBD4E7&width=435&lines=%22If+you+die%2C+they+forget.%22;%22When+it+rains%2C+you+get+wet.%22;%22If+you+die%2C+no+regrets.%22" alt="Typing SVG" /></a>
-<div align="center"> <img width="500" height="500" alt="Untitled160_20261119205548" src="https://github.com/user-attachments/assets/7ec8183b-e24e-4436-9f0d-294bcf9d7839" />
+<div align="center"> <img width="500" height="500" alt="Untitled284_20261120052436" src="https://github.com/user-attachments/assets/bcc9601a-e2cc-4c62-8564-caf8c7b8db14" />
  
 <p align="center"> <sub> ${\textsf{\color{#fbd4e7} art⠀:⠀my⠀homegirl⠀ilysm⠀kisses}}$ </sub>
 <p align="center">
