@@ -1,4 +1,3 @@
-<div align="center"> <img width="2048" height="122" alt="tumblr_6d979434ca45c56022b7d2322bcfdcdf_88967989_2048" src="https://github.com/user-attachments/assets/668e0c4f-17a3-47e1-9f6c-cbbe8105a6ab" />
 <div align="center"> <img width="2048" height="256" alt="tumblr_320c654c11100d1af89c6b53ddc299be_6938ea01_2048" src="https://github.com/user-attachments/assets/72e0e2d6-5ed9-49d6-898f-95424ac10250" />
 
 <div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%99%A1%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&color=fff5fa&labelColor=fbd4e7"/></a>
@@ -35,4 +34,3 @@
   ${\textsf{\color{#ffe1f0} still⠀in⠀active⠀recovery⠀okay?⠀please⠀be⠀gentle}}$
 
 <div align="center"> <img width="2048" height="256" alt="tumblr_0eb027530676c981cb993822834d77c4_8af3995b_2048" src="https://github.com/user-attachments/assets/16460914-897c-4384-8dba-9686a6c9a3f6" />
-<div align="center"> <img width="2048" height="122" alt="tumblr_2f100fbf51661410c5ab2e53a0a23e15_4aa6e87b_2048" src="https://github.com/user-attachments/assets/de9fe469-6f47-427c-a744-9ed6a4fc75ec" />
