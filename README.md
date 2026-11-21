@@ -2,8 +2,7 @@
 
 <div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%99%A1%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&color=fff5fa&labelColor=fbd4e7"/></a>
  
-<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=FCBDD6&width=435&lines=%22Cause+a+bear+doesn't+care+that+he's+evil%22;%22Microphone%2C+holler+back+at+the+people!%22" alt="Typing SVG" /></a>
-
+<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FBD4E7&width=435&lines=%22If+you+die%2C+they+forget.%22;%22When+it+rains%2C+you+get+wet.%22;%22If+you+die%2C+no+regrets.%22" alt="Typing SVG" /></a>
 <div align="center"> <img width="500" height="500" alt="Untitled287_20261120235216" src="https://github.com/user-attachments/assets/3cb64e63-7b4c-43d9-805d-2593971441e8" />
  
 <p align="center"> <sub> ${\textsf{\color{#fbd4e7} art⠀:⠀my⠀homegirl⠀ilysm⠀kisses}}$ </sub>
@@ -15,6 +14,8 @@
 <p align="center"> ${\textsf{\color{#ffe1f0} 20⠀y.o }}$
 <p align="center"> ${\textsf{\color{#fbd4e7} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
 <p align="center"> ${\textsf{\color{#ffe1f0} bryon⠀and⠀bloodymary⠀shippers⠀DNI}}$
+<p align="center"> ${\textsf{\color{#fbd4e7} bryan hodukavich, carlos oliveira and simon/the convict yume. doubles pls kindly dni }}$
+<p align="center"> ${\textsf{\color{#ffe1f0} or if you do int don't talk about YOUR yumeships with them plspls. and do not try to befriend me}}$
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
