@@ -18,8 +18,7 @@
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
- <img width="160" height="122" alt="Untitled218_20260925032128" src="https://github.com/user-attachments/assets/e1316ec6-9f1d-4baa-b9ce-93bbf09a20d1" /> <a href=https://yourlocaljayjay.straw.page/> <img width="200" height="122" alt="Untitled218_20260925032206" src="https://github.com/user-attachments/assets/01f3e353-4b6c-486e-9958-4b50e84de871" />
-
+ <img width="160" height="122" alt="Untitled290_20261121025039" src="https://github.com/user-attachments/assets/9389876e-987a-451c-a2ea-8e9da288839b" /> <a href=https://yourlocaljayjay.straw.page/> <img width="200" height="122" alt="Untitled290_20261121025531" src="https://github.com/user-attachments/assets/e8782345-6c90-4074-909e-4f013cb6a6b9" />
   </a>
 
    
