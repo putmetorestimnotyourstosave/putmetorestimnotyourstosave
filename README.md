@@ -1,6 +1,6 @@
 <div align="center"> <img width="2048" height="256" alt="tumblr_320c654c11100d1af89c6b53ddc299be_6938ea01_2048" src="https://github.com/user-attachments/assets/72e0e2d6-5ed9-49d6-898f-95424ac10250" />
 
-<div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?style=flat-square&label=%E0%BB%92%EA%92%B0%E0%BE%80%E0%BD%B2%20%CB%B6%3E%20%CB%95%20%3C%CB%B6%EA%92%B1%E0%BE%80%E0%BD%B2%E0%A7%A7&color=d9e4ff&labelColor=fbd4e7"/></a>
+<div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%99%A1%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&color=fff5fa&labelColor=fbd4e7"/></a>
  
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=FCBDD6&width=435&lines=%22Cause+a+bear+doesn't+care+that+he's+evil%22;%22Microphone%2C+holler+back+at+the+people!%22" alt="Typing SVG" /></a>
 
