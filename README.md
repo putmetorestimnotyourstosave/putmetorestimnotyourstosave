@@ -15,10 +15,13 @@
 <p align="center"> ${\textsf{\color{#ffe1f0} 20⠀y.o }}$
 <p align="center"> ${\textsf{\color{#fbd4e7} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
 <p align="center"> ${\textsf{\color{#ffe1f0} bryon⠀and⠀bloodymary⠀shippers⠀DNI}}$
-<div align="center"> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e07d6a6b-8b56-411f-911e-2414aa902f69" />
+<div align="center">
 
+<a href=https://malharejayexe.atabook.org/>
+ <img width="160" height="122" alt="Untitled218_20260925032128" src="https://github.com/user-attachments/assets/e1316ec6-9f1d-4baa-b9ce-93bbf09a20d1" /> <a href=https://yourlocaljayjay.straw.page/> <img width="200" height="122" alt="Untitled218_20260925032206" src="https://github.com/user-attachments/assets/01f3e353-4b6c-486e-9958-4b50e84de871" />
 
- [atabook](https://malharejayexe.atabook.org/) ꒰ ୨ৎ ꒱ [straw](https://yourlocaljayjay.straw.page/)
+  </a>
+
    
  <div align="center">
  <details>
