@@ -14,7 +14,7 @@
 <p align="center"> ${\textsf{\color{#ffe1f0} 20⠀y.o }}$
 <p align="center"> ${\textsf{\color{#fbd4e7} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
 <p align="center"> ${\textsf{\color{#ffe1f0} bryon⠀and⠀bloodymary⠀shippers⠀DNI}}$
-<p align="center"> ${\textsf{\color{#fbd4e7} bryan hodukavich, carlos oliveira and simon/the convict yume. doubles pls kindly dni }}$
+<p align="center"> ${\textsf{\color{#fbd4e7} bryan hodukavich yume. doubles pls kindly dni }}$
 <p align="center"> ${\textsf{\color{#ffe1f0} or if you do int don't talk about YOUR yumeships with them plspls. and do not try to befriend me}}$
 <div align="center">
 
