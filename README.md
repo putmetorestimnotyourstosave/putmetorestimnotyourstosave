@@ -24,7 +24,7 @@
  <details>
  <summary>${\textsf{\color{#fbd4e7} thank⠀you⠀so⠀much⠀for⠀the⠀nominations⠀guys⠀:}}$ </summary>
    
-   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media) ꒰ ⋮ ꒱ [꒰ა♡໒꒱](https://github.com/pt-fashion) ꒰ ⋮ ꒱ [୨♡୧](https://github.com/pt-of-awesomeness) ꒰ ⋮ ꒱ [ʚ♡ɞ](https://github.com/pt-nominations) ꒰ ⋮ ꒱ [୭ ᵎᵎ ♡](https://github.com/title-town) ꒰ ⋮ ꒱ [໒꒱ིྀ༝⁺](https://github.com/kaotown) ꒰ ⋮ ꒱ [୨୧](https://github.com/Ponytowns-rewards) ꒰ ⋮ ꒱ [ೀ](https://github.com/daggerstruckmage) ꒰ ⋮ ꒱ [♡ྀི₊](https://github.com/music-town)
+   [˚ʚ♡ɞ˚](https://github.com/pt-walk-of-fame) ꒰ ⋮ ꒱ [᧔ෆ᧓](https://github.com/pt-hall-of-media) ꒰ ⋮ ꒱ [꒰ა♡໒꒱](https://github.com/pt-fashion) ꒰ ⋮ ꒱ [୨♡୧](https://github.com/pt-of-awesomeness) ꒰ ⋮ ꒱ [ʚ♡ɞ](https://github.com/pt-nominations) ꒰ ⋮ ꒱ [୭ ᵎᵎ ♡](https://github.com/title-town) ꒰ ⋮ ꒱ [໒꒱ིྀ༝⁺](https://github.com/kaotown) ꒰ ⋮ ꒱ [୨୧](https://github.com/Ponytowns-rewards) ꒰ ⋮ ꒱ [ೀ](https://github.com/daggerstruckmage) ꒰ ⋮ ꒱ [♡ྀི₊](https://github.com/music-town) ꒰ ⋮ ꒱ [♡⸝⸝](pt-hall-of-fans)
 
   </details>
 
